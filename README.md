@@ -1,4 +1,4 @@
-## salve, me chamo Felipe 
+## salve, meu nome é Felipe 
 - sou estudante
 - estou me desenvolvendo em linguagem javenScrit
 - 💸💸💸
