@@ -2,4 +2,4 @@
 - sou estudante
 - estou me desenvolvendo em linguagem javenScrit
 - 💸💸💸
-@lipe.xf 
+- @lipe.xf 
