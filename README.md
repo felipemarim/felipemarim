@@ -1,5 +1,6 @@
 ## salve, meu nome é Felipe 
 - sou estudante
+- amo o flamengo
 - estou me desenvolvendo em linguagem javenScrit
 - 🎲🎰💸
 - @lipe.xf
