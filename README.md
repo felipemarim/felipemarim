@@ -3,7 +3,7 @@
 - amo o flamengo
 - estou me desenvolvendo em linguagem javenScrit
 - 🎲🎰💸
-- @lipe.xf
+- @lipe.xf (segue lá)
 - entre em contato comigo
 - felipe.marim.santos@escola.pr.gov.br
 - 
