@@ -4,4 +4,4 @@
 - 💸💸💸
 - @lipe.xf
 - 
- {} (https://tenor.com/pt-BR/view/marvel-marvel-super-war-deadpool-hi-hi-beautiful-gif-16149622)
+ {} (https://media1.tenor.com/m/2QUqNbkWUvkAAAAC/marvel-marvel-super-war.gif)
