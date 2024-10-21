@@ -3,5 +3,6 @@
 - estou me desenvolvendo em linguagem javenScrit
 - 💸💸💸
 - @lipe.xf 
-!{}(https://media1.tenor.com/m/UgqhdAeBrcwAAAAd/deadpool-dance-bye-bye-bye.gif)
+!{}(![image](https://github.com/user-attachments/assets/d8fa016a-9dfb-42ca-8b6e-612e96ee2b0e)
+
 
